@@ -12,3 +12,6 @@
 
 **Link for Editable Project Proposal:**
 https://docs.google.com/document/d/1zmVuMPcQycdW4azS-u5s0vM84eNKGug96ZX3SYI0FLA/edit?usp=sharing
+
+**Check the complete project here:**
+https://drive.google.com/drive/folders/1FhW_SMx24HIRpqzQZ57MgOXM5FI-GiJM?usp=sharing
